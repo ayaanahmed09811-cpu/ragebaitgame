@@ -1,2 +1,0 @@
-# ragebaitgame
-just peak
